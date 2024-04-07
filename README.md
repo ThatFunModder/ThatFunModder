@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ThatFunModder!
+- 👀 I’m interested in ... GORILLA TAG OO OO AA AA
+- 🌱 I’m currently learning ... How to make gt mods
+- 💞️ I’m looking to collaborate on ... Gorilla Tag 
+- 📫 How to reach me ... Hit me up on X (twitter) @GorillaTagAH.
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: nothing.
